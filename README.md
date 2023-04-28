@@ -1,16 +1,15 @@
-### Hi there 👋
+### Olá, bem vindo ao meu perfil 🎻
 
-<!--
-**ViolinistaEstudante/ViolinistaEstudante** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Para você quer não me conhece prazer, Brendow, mais conhecido como **NERD E VIOLINISTA** 
 
-Here are some ideas to get you started:
+- Estou fazendo o curso do [Alura](https://www.alura.com.br) 
+- Estou utilizando o site para organizar e aprender melhor o chamado [JavaScript](pt.wikipedia.org/wiki/Javascript)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**AINDA NÃO TENHO CONTATOS PARA TIRAR AS DÚVIDAS 💎**
+
+
+**Obrigado por acessar o meu perfil 📆**
+
+*FRASE DE REFLEXÂO* 😔 **Faça que nem um jogador de futebol, chute coisas ruins para longe, drible seus desafios, e confie no seu potencial, porque um dia o seu sonho se realizará 🤲**
+
+![](https://media.tenor.com/NK3vdczVp2YAAAAM/tofie-student.gif)
