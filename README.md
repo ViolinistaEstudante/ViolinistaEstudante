@@ -4,12 +4,10 @@ Para você quer não me conhece prazer, Brendow, mais conhecido como **NERD E VI
 
 - Estou fazendo o curso do [Alura](https://www.alura.com.br) 
 - Estou utilizando o site para organizar e aprender melhor o chamado [JavaScript](pt.wikipedia.org/wiki/Javascript)
+- Se estiver com dúvidas de estudos acesse a frente [NOTION STUDS](https://www.notion.so)
 
 **AINDA NÃO TENHO CONTATOS PARA TIRAR AS DÚVIDAS 💎**
-
-
 **Obrigado por acessar o meu perfil 📆**
-
-*FRASE DE REFLEXÂO* 😔 **Faça que nem um jogador de futebol, chute coisas ruins para longe, drible seus desafios, e confie no seu potencial, porque um dia o seu sonho se realizará 🤲**
+*FRASE DE REFLEXÂO* 😔 **A CRIATIVIDADE É A INTELIGÊNCIA SE DIVERTINDO  🤲**
 
 ![](https://media.tenor.com/NK3vdczVp2YAAAAM/tofie-student.gif)
