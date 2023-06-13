@@ -13,3 +13,9 @@ Para você quer não me conhece prazer, Brendow, mais conhecido como **NERD E VI
 *FRASE DE REFLEXÂO* 😔 **A CRIATIVIDADE É A INTELIGÊNCIA SE DIVERTINDO  🤲**
 
 ![](https://media.tenor.com/NK3vdczVp2YAAAAM/tofie-student.gif)
+
+
+
+
+
+**O SITE UTILIZADO ACIMA É DO SITE [TENOR](https://tenor.com/pt-BR/)
