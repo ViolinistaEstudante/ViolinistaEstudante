@@ -18,4 +18,4 @@ Para você quer não me conhece prazer, Brendow, mais conhecido como **NERD E VI
 
 
 
-**O SITE UTILIZADO ACIMA É DO SITE [TENOR](https://tenor.com/pt-BR/)
+**O SITE UTILIZADO ACIMA É DO SITE** [TENOR](https://tenor.com/pt-BR/)
